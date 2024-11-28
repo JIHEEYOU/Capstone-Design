@@ -19,7 +19,7 @@
 ![image](https://github.com/user-attachments/assets/d1ee38b2-a603-4287-b36e-702d76767a2b)
 
 ### <나의 프로필>
-![image](https://github.com/user-attachments/assets/ab28a444-a72c-49ef-b10b-86e6bc7b18b1)
+![image](https://github.com/user-attachments/assets/4bac6b20-81af-4cb2-85e8-a14783ad5da8)
 
 ### <룸메이트 매칭화면>
 ![image](https://github.com/user-attachments/assets/954d2be8-4b20-40fe-972b-f408893e5863)
